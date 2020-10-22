@@ -7,3 +7,6 @@ Prompto Argentum is a companion of Prince Noctis and a party member in Final Fan
 - He can also be fought against as an opponent in Final Fantasy XV: Comrades and during campsite training
 
 
+> I want to ride my chocobo all day!
+
+
